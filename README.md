@@ -8,4 +8,4 @@ I'm super enthusiastic about learning new technologies and how these can be best
 
 Oh, and also, I'm a sports buff and a HUGE Formula 1 fan. Hit me up if you want to talk sports, machine learning, data science, or anything fun in life! :)
 
-I can also be reached over by email: [aayush.shah1909@gmail.com](aayush.shah1909@gmail.com)
+I can also be reached over by email: [shah.aayush1909@gmail.com](shah.aayush1909@gmail.com)
